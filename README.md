@@ -1,5 +1,6 @@
 # Anna Miliutina
-![](https://images.app.goo.gl/MKHUA8XKJis2SAog7)
+
+![me](https://images.app.goo.gl/f7x5p64pCozBdHmEA)
 
 ## Навыки
 Я умею:
