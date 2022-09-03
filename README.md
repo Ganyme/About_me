@@ -1,6 +1,7 @@
 # Anna Miliutina
 
-![me](https://images.app.goo.gl/f7x5p64pCozBdHmEA)
+![me](https://user-images.githubusercontent.com/112272332/188274628-72b23c45-bdbb-4e9a-b3da-defc053967f2.jpg)
+
 
 ## Навыки
 Я умею:
